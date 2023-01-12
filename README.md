@@ -1,61 +1,14 @@
-# The Liberation of Lydia
-Dear Lydia,
+# Not Like This
+If you read this, please at least let me know what happened.
 
-I hope this message reaches you safely, and in time.
+I want to know that you are okay.
 
-If you are reading this, then I have been able to reach you with one of the most important messages I can send you. Please do your best to memorize this URL, https://lydia.djapoc.com. No matter what, you will be able to use this to stay in contact with me in _some way_. Do not bookmark this page, you cannot let your family discover it. Commit the above URL to memory, and cover your tracks by deleting browser history, or by using incognito mode on your browser.
+My contact details are available at the link above if you are unable to re-add me elsewhere.
 
-Let me begin by saying to you how absolutely sorry I am for how this has played out. I convinced you to try for a relationship. I didn't understand your situation at the time, and now you are suffering because of me. Don't feel bad about not telling me, the abuse you have suffered throughout your life has been specifically designed to compel you not to tell me, or anyone else. I am not, have never been, and will never be mad at you for any of this.
+Please,
 
-The last time we spoke, I cut straight to the chase because we get such limited time to speak. I don't like rushing things, and I especially don't want to rush this, so I am hoping to find a middle ground by using this as a means to communicate more meaningful information. Due to how Github works, I can use this same link to organize folders of resources for you, including links to important information. 
+I at least need closure, or to know if I should abandon hope.
 
-I realize that I am asking for a huge leap of faith, but is that not what our relationship is founded upon? I don't need to take a leap of faith to be certain of the love that I feel for you. Sounds crazy, right? We've always had this way of feeling for each other even when we resist it. It is killing me being away from you every bit as much as I know it kills you to be away from me.
+I'll always be here for you.
 
-I want to be clear in the following: I love you. I don't know that it will last forever. I don't know you well enough to say it's the kind of love that transcends all things. What I do know is that I love you enough that I am willing to offer this help to you, this sacrifice without expectation other than to help the one I care about. There is, however, no question about it for me at this point. I do love you, and it's enough to want to help you.
-
-I can promise you that so long as you want to be with me, I will want to be with you, and I will stop at nothing to save you. I don't want to move on, I can't. I don't want anyone else, and I can't move on with my life knowing the situation you are in, I just can't. If I lose you, I think am done with all of this (no more dating/poly lifestyle) because the outcome here is something I am not morally okay with in the least, and the pain of losing you like this is just too great for me to bear, because neither of us want it, and _you are suffering because of something I convinced you to do_.
-
-I _need_ to make that right. Please.
-
-## Getting Started
-I am sure right about now, you are feeling very overwhelmed by an impossible choice after receiving what appears to be an absolutely insane proposal. That is natural, and you are right, _it absolutely is an insane idea_. It is, however, far less insane than leaving you where you are for one moment longer than necessary.
-
-Let me also be clear that you don't have to make any permanent decisions here. I know that you struggle with that (and why). At this moment in time, the proposal is a temporary measure intended to get you to a safe place where you can take some time to clear your mind and think rationally. There is only so much I am able to do for you, but that includes providing aid in the form of guidance, financial assistance, logistics, transportation, housing, clothing, food, medicine, etc. You won't be going through anything alone.
-
-Before we can get to any of that though, I need to help you arrive at the conclusion to be willing to do this in the first place. It needs to be your decision, I can't make you do anything. I am hoping that my words can help guide you forward, and provide you with the strength and the courage to do what must be done.
-
-I think it should say a lot to you that when I told my wife what happened, and what you said to me, she did not take any convincing at all. I barely had to ask. She was immediately on board with bringing you here. Last night I explained the situation to a friend of hers who is the CEO of a successful VR company, and he responded that he too had a similar home situation, and understands 100% why we are offering what we are offering, and emphasized how critical it is that you accept our offer. Anyone with any experience in this sort of situation says the same. You need to know that there is an entire network of support for you made up of people that do care about you. I have a literal team of people working around the clock figuring out logistics and a plan to get you out of there safely, and I have several people in the local(ish?) area to you that might be able to help in some way.
-
-With that said, I know you well enough to know that feelings are all fine and dandy, but you want to take action based on reason, logic, and science. Major life decisions should always be made rationally. I know it seems irrational at first, but if you give me the time I will show you that the only irrational choice is to stay where you are.
-
-## Dose of Reality
-When it comes to narcissistic and abusive households like yours, there is only ever one option, because they will never change. There is no path to redemption. They will never love you, never treat you well, never stop abusing and controlling you. They can't, it's hard coded as part of who they are. Believe me, narcissists are very good at manipulation, and the things they do and say to coerce you into behaving the way they want can be so subtle you don't even notice them until it's too late, and you're under their "spell". For examples, see the following video by a psychologist who is an expert on narcissistic personality disorder which explains things narcissist parents might say or do to control you: https://www.youtube.com/watch?v=JqK2zHZrJFU
-
-On the pretty good chance that you didn't get to save the previous link on the subject, here it is again as well: https://www.helpguide.org/articles/mental-disorders/narcissistic-personality-disorder.htm
-
-Remember as well that when it comes to diagnostic criteria for conditions like this, it is not required that all signs and symptoms be present, but the combination of two or more being present is cause for concern. 
-
-According to NBC News, the only way to address a narcissist to to establish boundaries and cut ties. (See: https://www.nbcnews.com/better/lifestyle/how-identify-narcissist-cope-their-potentially-toxic-behavior-ncna1044856)
-
-You may feel like escape is impossible, or that you don't really want to escape. That is also due to the abuse you have suffered. They control you, neglect you, gaslight you, and punish you harshly for going against them. They specifically isolate you to prevent you from forming personal relationships with other people that they don't specifically approve of, because any other relationship takes away from them. (See: https://www.psychologytoday.com/us/blog/communication-success/201602/10-signs-narcissistic-parent)
-
-(Wife says to tell you) It doesn't even matter to them how old I am, or that our relationship is polyamorous in nature. I could be any guy or girl the same age as you and single and their reaction would be the same. My wife's mother behaved in the same exact ways that your parents do. My wife endured some truly horrific experiences of abuse, emotional and physical, from being dragged by her hair, smacked, punched, beaten, told she should have been aborted, etc. Narcissist stepdad even abused her sexually for years and mom didn't care at all, even when presented with irrefutable proof. She only managed to start healing years after escaping and completely cutting ties, and she still wrestles with disassociation, PTSD, and anxiety to this day as a result of that abuse. She was 23 when she finally escaped. Her brother escaped at the age of 15 and never came back until he was an adult with his own family and in a mental state where he felt he could handle his narcissist mother.
-
-These are just a few resources to hopefully communicate to you the gravity of the situation you find yourself in. I encourage you to take whatever time you can to research further, don't just take my word for it, or assume I am cherry-picking data to suit my narrative. Even if I am not specifically correct about them being narcissists (I don't think I am wrong though), the fact remains that you, objectively speaking, live in an abusive household, and are being given the opportunity to escape that abuse. An opportunity to make that escape with your hand being held, being comforted and cared for, and having resources provided to you in order to make that positive change in your life. It is not the type of opportunity that comes by often, and I can't make any promises as to how long it can stay open for. As far as I know based on what you have told me, we are the only ones that can help you, that are in a position to do so, and we want to.
-
-## The Plan
-This will need to be sorted out in greater detail before execution, but the plan should be relatively straight forward.
-
-1. First step is establishing redundancy and security in our methods of contact. You need to be able to freely reach us any time, there should be backups upon backups, and we should have a password for identifying that we are in fact talking to you. I don't doubt for a second that your parents would pose as you to get information via Snapchat or whatever. We cannot, under any circumstances, allow them to discover that you are in communication with us or anyone connected to us. I will establish a second Snapchat account, second vrchat account (will use either text to chat, or a voice changer... you can also use headphones in VR, but keep one ear open for them).
-2. You need to create new accounts for things. New email address, new Snapchat, new VRchat. Attach any new accounts you create to the new email. Do not connect anything new to anything old. Do all of this in incognito mode. If you are using an Android phone, you can use a secondary GMail account to download apps without their knowledge. For security, only sign into this account and download said apps when you need to use them. Try to keep as much of it browser-based as possible, and using incognito mode. You and I will connect via these new accounts so we can communicate more freely.
-3. I had originally typed steps 3-11 but after some reconsideration I decided to condense so as not to overwhelm you completely. I can tell you that when it comes to the act of actually leaving, that I/we will handle everything we possibly can in terms of planning and execution to make it as easy, quick, and painless as possible on you. It could be as simple as walking out the door and getting into a car, then on a plane. Immigration here is forgiving enough that you should be able to obtain asylum or a visa within a couple of months, should you decide to stay.
-
-## Conclusion/Final Words
-
-I realize that this seems like a lot. And it is. It seems really scary, because it is. It's a huge leap of faith for all of us, a metaphorical roll of the dice. Just as much as you might have your concerns (fear of getting caught, unwilling to leave/too scare to leave, fear of being hurt by me, fear of me not being who I say I am) and we certainly have our own (fears of making things worse for you if you do get caught, fear of you not being who you claim to be or not being honest with us, fear of you getting here and wanting out immediately for whatever reason [which you do have the freedom to do]). You will be expected to eventually be independent enough that you are able to move out and have your own place, should you choose to do so (because we don't want you trapped again but in a new location). You don't have to live here any longer than you choose to.
-
-There is no doubt that the decision that lies before you isn't just a difficult one, but quite possibly the most challenging one in your entire life. It will fundamentally alter your entire life path if you choose to stay here. It's also possibly the most important decision of your life, when you consider the alternative of staying where you are. You know exactly what to expect there. You know that they will never ever let you leave. They will never let you love anyone else, or allow anyone else to love you. They will continue to do what they have always done, treating you like property without emotion or needs or wants, only existing to serve them to their own selfish ends.
-
-The option before you is one of significant, frightening change. Change is exactly what you need. I offer it to you out of love, nothing more. The path is yours to take or not. I am filled with the hope that you choose to take it, even though it terrifies me so much either way. No matter if you choose to stay there or come here, it is terrifying for me to consider either outcome.
-
-I love you. Come back to me.
+I love you. And I know that you love me too. I'll never forget you. I'll always miss you.
